@@ -11,11 +11,11 @@ The film’s visuals, music, and technical aspects will play an important role i
 
 **➤ ►🌍📺📱👉Punjabi Movie Nikka Zaildar 4 Movie 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘬𝘶𝘵𝘵𝘺𝘮𝘰𝘷𝘪𝘦𝘴**
 
-**Punjabi Movie Nikka Zaildar 4 Movie 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘪𝘯 𝘏𝘪𝘯𝘥𝘪 𝘧𝘪𝘭𝘮𝘺𝘻𝘪𝘭𝘭𝘢**
+**➤ ►🌍📺📱👉Punjabi Movie Nikka Zaildar 4 Movie 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘪𝘯 𝘏𝘪𝘯𝘥𝘪 𝘧𝘪𝘭𝘮𝘺𝘻𝘪𝘭𝘭𝘢**
 
-**Punjabi Movie Nikka Zaildar 4 Movie 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘷𝘦𝘨𝘢𝘮𝘰𝘷𝘪𝘦𝘴 𝘮𝘱4𝘮𝘰𝘷𝘪𝘦𝘻**
+**➤ ►🌍📺📱👉Punjabi Movie Nikka Zaildar 4 Movie 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘷𝘦𝘨𝘢𝘮𝘰𝘷𝘪𝘦𝘴 𝘮𝘱4𝘮𝘰𝘷𝘪𝘦𝘻**
 
-**Punjabi Movie Nikka Zaildar 4 Movie 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘪𝘯 𝘏𝘪𝘯𝘥𝘪**
+**➤ ►🌍📺📱👉Punjabi Movie Nikka Zaildar 4 Movie 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘪𝘯 𝘏𝘪𝘯𝘥𝘪**
 
 ### Cinematography and VFX
 
